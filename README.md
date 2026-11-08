@@ -1,26 +1,28 @@
-<img width="403" height="46" alt="image" src="https://github.com/user-attachments/assets/780e2e01-fab4-400e-adcd-7fa87dbd52c1" /> <img width="403" height="46" alt="image" src="https://github.com/user-attachments/assets/11fdf569-9cd2-4ba8-877f-902f5b1c3d96" />
+<img width="1200" height="100" alt="image" src="https://github.com/user-attachments/assets/f7b065df-a7e1-4021-b095-0f9978b5d363" />
 
 
 
 
-# $\color{#d4aff2}\textsf{— Life and death are but a journey. When butterfly alights on the branch,}$ $\color{#d4aff2}\textsf{what withers will bloom anew.}$
+# $\color{#5B64D5}\textsf{"I'm so loud?! Well, DUH, if you're gonna do something, you gotta make it}$ $\color{#5B64D5}\textsf{FUN! And if you wanna call that cringe, I'll just crank it up even louder! ♪"}$
 
-<img width="330" height="460" alt="image" src="https://github.com/user-attachments/assets/f1dd622d-d2ad-4ac1-8422-9fdc4d56b202" />
+<img width="500" height="667" alt="image" src="https://github.com/user-attachments/assets/6e50d90d-e185-4ddc-b089-425352cbf909" />
 
-## $\color{#d4aff2}\textsf{Previously known as Erissie!}$
+## $\color{#5B64D5}\textsf{Previously known as Erissie!}$
 
-$\color{#d4aff2}\textsf{Castorice/Eris}$
+$\color{#5B64D5}\textsf{Castorice/Eris}$
 
-$\color{#d4aff2}\textsf{Any pronouns, but mainly she/her}$
+$\color{#FBE247}\textsf{Any pronouns, but mainly she/her}$
 
-$\color{#d4aff2}\textsf{I'm 20 bodily!}$
+$\color{#5B64D5}\textsf{I'm 20 bodily!}$
 
-$\color{#d4aff2}\textsf{Mentally unstable/ill, might be dissociating, iwcare always !! W2i C+H always}$
+$\color{#FBE247}\textsf{Mentally unstable/ill, might be dissociating, iwcare always !! W2i C+H always}$
 
-$\color{#d4aff2}\textsf{TWST area most likely, if not I'm with friends/party}$
+$\color{#5B64D5}\textsf{TWST area most likely, if not I'm with friends/party}$
 
-$\color{#d4aff2}\textsf{Suspecting dissociative disorder, I'm not an IRL ! I just resonate with Castorice a lot.}$
+$\color{#FBE247}\textsf{Suspecting dissociative disorder, I'm not an IRL ! I just resonate with Daitaku Helios a lot!!}$
 
-<img width="403" height="46" alt="image" src="https://github.com/user-attachments/assets/4ae8d5ce-f91d-49f0-983d-875201a6ccbe" />
-<img width="403" height="46" alt="image" src="https://github.com/user-attachments/assets/f4023bca-1ceb-4b9f-843d-4ff244494f41" />
+<img width="210" height="175" alt="image" src="https://github.com/user-attachments/assets/74e3c2f0-ebe5-4b56-83d5-dc4d4926f462" />
+
+<img width="1200" height="100" alt="image" src="https://github.com/user-attachments/assets/80a34856-018b-4d6c-99ce-7c19bc71cbd0" />
+
 
