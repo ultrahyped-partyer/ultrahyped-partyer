@@ -20,6 +20,7 @@ $\color{#FBE247}\textsf{Mentally unstable/ill, might be dissociating, iwcare alw
 $\color{#5B64D5}\textsf{TWST area most likely, if not I'm with friends/party}$
 
 $\color{#FBE247}\textsf{Suspecting dissociative disorder, I'm not an IRL ! I just resonate with Daitaku Helios a lot!!}$
+$\color{#5B64D5}\textsf{This will be brought up  to my psychiatrist as the next appointment!!!!!}$
 
 <img width="210" height="175" alt="image" src="https://github.com/user-attachments/assets/74e3c2f0-ebe5-4b56-83d5-dc4d4926f462" />
 
