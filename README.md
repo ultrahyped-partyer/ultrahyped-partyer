@@ -9,7 +9,7 @@
 
 ## $\color{#5B64D5}\textsf{Previously known as Erissie!}$
 
-$\color{#5B64D5}\textsf{Castorice/Eris}$
+$\color{#5B64D5}\textsf{Helios/Eris}$
 
 $\color{#FBE247}\textsf{Any pronouns, but mainly she/her}$
 
