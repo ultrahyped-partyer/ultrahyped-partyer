@@ -24,7 +24,7 @@ $\color{#5B64D5}\textsf{TWST area most likely, if not I'm with friends/party}$
 $\color{#FFCCAA}\textsf{You should check out DaTura, it's a Japanese idol group! Super good music}$
 
 $\color{#5B64D5}\textsf{Suspecting dissociative disorder, I'm not an IRL ! I just resonate with Daitaku Helios a lot!!}$
-$\color{#FBE247}\textsf{This will be brought up  to my psychiatrist as the next appointment!!!!!}$
+$\color{#FFCCAA}\textsf{This will be brought up  to my psychiatrist as the next appointment!!!!!}$
 
 <img width="210" height="175" alt="image" src="https://github.com/user-attachments/assets/74e3c2f0-ebe5-4b56-83d5-dc4d4926f462" />
 
