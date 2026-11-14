@@ -7,19 +7,21 @@
 
 <img width="500" height="667" alt="image" src="https://github.com/user-attachments/assets/6e50d90d-e185-4ddc-b089-425352cbf909" />
 
+# $\color{#FFCCAA}\textsf{"More and more! Even moooore! In order to deliver hope to everyone!"}$
+
 ## $\color{#5B64D5}\textsf{Previously known as Erissie!}$
 
-$\color{#5B64D5}\textsf{Helios/Eris}$
+$\color{#5B64D5}\textsf{Helios/Minori/Eris}$
 
-$\color{#FBE247}\textsf{Any pronouns, but mainly she/her}$
+$\color{#FFCCAA}\textsf{Any pronouns, but mainly she/her}$
 
 $\color{#5B64D5}\textsf{I'm 20 bodily!}$
 
-$\color{#FBE247}\textsf{Mentally unstable/ill, might be dissociating, iwcare always !! W2i C+H always}$
+$\color{#FFCCAA}\textsf{Mentally unstable/ill, might be dissociating, iwcare always !! W2i C+H always}$
 
 $\color{#5B64D5}\textsf{TWST area most likely, if not I'm with friends/party}$
 
-$\color{#FBE247}\textsf{You should check out DaTura, it's a Japanese idol group! Super good music}$
+$\color{#FFCCAA}\textsf{You should check out DaTura, it's a Japanese idol group! Super good music}$
 
 $\color{#5B64D5}\textsf{Suspecting dissociative disorder, I'm not an IRL ! I just resonate with Daitaku Helios a lot!!}$
 $\color{#FBE247}\textsf{This will be brought up  to my psychiatrist as the next appointment!!!!!}$
