@@ -5,7 +5,8 @@
 
 # $\color{#5B64D5}\textsf{"I'm so loud?! Well, DUH, if you're gonna do something, you gotta make it}$ $\color{#5B64D5}\textsf{FUN! And if you wanna call that cringe, I'll just crank it up even}$ $\color{#5B64D5}\textsf{louder! ♪"}$
 
-<img width="500" height="667" alt="image" src="https://github.com/user-attachments/assets/6e50d90d-e185-4ddc-b089-425352cbf909" />
+<img width="300" height="420" alt="image" src="https://github.com/user-attachments/assets/6e50d90d-e185-4ddc-b089-425352cbf909" /> <img width="300" height="412" alt="image" src="https://github.com/user-attachments/assets/92dfff67-7ed0-419e-89e4-f342252e5ed2" />
+
 
 # $\color{#FFCCAA}\textsf{"More and more! Even moooore! In order to deliver hope to everyone!"}$
 
